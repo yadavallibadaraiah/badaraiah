@@ -1,0 +1,2 @@
+# badaraiah
+THIS  IS MY GITHUB REPOSITORY
